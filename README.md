@@ -47,7 +47,7 @@ $ pip2 install bs4
 $ pkg install git
 $ git clone https://github.com/DavidKumar45/Duke.git
 $ cd Duke
-$ python duke.py
+$ python2 duke.py
 
 
 
