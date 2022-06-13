@@ -8,13 +8,13 @@
        🔰 THIS REPOSITORY ONLY PAID🔰 
 
   
-<b></b> </br> <br>[![Github](https://img.shields.io/badge/Github-DavidKumar45-dimgray?style=flat-square&logo=github)](https://github.com/DavidKumar45)<br> [![Facebook](https://img.shields.io/badge/Facebook-+David-blue?style=flat-square&logo=facebook)](https://www.facebook.com/profile.php?id=100063716716333)<br> [![Instagram](https://img.shields.io/badge/Instagram-DAVID-hotpink?style=flat-square&logo=instagram)](I'm on Instagram as @cyberdemon404. Install the app to follow my photos and videos. www.instagram.com/insta)<br> [![Whatsapp](https://img.shields.io/badge/Whatsapp-David-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+2348178406817)
+<b></b> </br> <br>[![Github](https://img.shields.io/badge/Github-DavidKumar45-dimgray?style=flat-square&logo=github)](https://github.com/DavidKumar45)<br> [![Facebook](https://img.shields.io/badge/Facebook-+David-blue?style=flat-square&logo=facebook)](https://www.facebook.com/profile.php?id=100063716716333)<br> [![Instagram](https://img.shields.io/badge/Instagram-DAVID-hotpink?style=flat-square&logo=instagram)](I'm on Instagram as @cyberdemon404. Install the app to follow my photos and videos. www.instagram.com/Instagram)<br> [![Whatsapp](https://img.shields.io/badge/Whatsapp-David-deepgreen?style=flat-square&logo=whatsapp)](https://wa.me/+2348178406817)
 
 
 
 <h1 align="center"> |N. David|</h1>
 
-<h2 align="center"> FB CRACKING PREMIUM TOOL </h2>a
+<h2 align="center"> FB CRACKING PREMIUM TOOL </h2>
 
 <p align="center">
       RANDOM FACEBOOK UID CLONING available
